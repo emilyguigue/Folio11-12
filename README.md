@@ -1,6 +1,10 @@
 # Folio11-12
 Where I will be posting updates on Folio 11-12 
 
+First ten lines read something like:
+velociter exaudi me domi/ ne defecit spiritus meus/ non auertas faciem tu/ am a me et †similist† †ew† descé/ dentibus in lacum/ auditam fac mini ma/ ne misericordiam tuá quia/ in te speravi/ notam fac mini viam/ in qua ambulem quia ad
+
+
 18.5cm tall x 13cm wide
 
 Has three 1cm x 1cm large decorated letters in addition to smaller words. 
